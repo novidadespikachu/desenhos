@@ -3,7 +3,8 @@
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
 
 # Aguardem !
-
+<img src=">https://media.giphy.com/media/slVWEctHZKvWU/giphy.gif" alt="pikachu">
+</a
 
 
 <a href="https://bit.ly/pikachufull">
