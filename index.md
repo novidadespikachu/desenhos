@@ -4,7 +4,7 @@
 
 # Aguardem !
 <img src=">https://media.giphy.com/media/slVWEctHZKvWU/giphy.gif" alt="pikachu">
-</a
+</a>
 
 
 <a href="https://bit.ly/pikachufull">
