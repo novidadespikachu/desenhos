@@ -2,8 +2,32 @@
 
  [![](https://tinyurl.com/ydcxhx7f)](http://bit.ly/repokachu) [![](https://tinyurl.com/ybaflaxt)](https://vkodi.net/repo/) [![](https://tinyurl.com/ybcutyjq)](http://bit.ly/zipikachu) [![](https://tinyurl.com/yckqgysp)](https://linktr.ee/addonpikachu) [![](https://tinyurl.com/ybja3588)](https://tinyurl.com/grupopikachu) [![](https://tinyurl.com/y83so6xr)](https://t.me/addonpikachu)  
 
-# Aguardem !
-<img src="https://media.giphy.com/media/slVWEctHZKvWU/giphy.gif" alt="pikachu">
+# segunda-feira, 22 de junho de 2020
+<table style="width:100%"><tr><th><center><b> TV no menu infantil superfuncional! - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Infantil/Inf%20(1).png" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Área infantil está pronta para entreter sua criança</justify></td></tr></table>
+
+
+<table style="width:100%"><tr><th><center><b> Area infantil disponível no addon Pikachu! - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Infantil/Inf%20(2).png" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Area pensada para crianças, traga as crianças para se divertir com o pikachu</justify></td></tr></table>
+
+
+<table style="width:100%"><tr><th><center><b> Area de sucessos infantil no YouTube - 1080p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Infantil/Inf%20(3).png" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Área infantil está pronta para entreter sua criança</justify></td></tr></table>
+
+
+<table style="width:100%"><tr><th><center><b> Sucessos da Hora Warner! - 720p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Infantil/Inf%20(4).png" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Hora Warner Pikachu, o melhor desenho completo! Com 600 episódios exclusivos apenas no addon Pikachu!</justify></td></tr></table>
+
+
+<table style="width:100%"><tr><th><center><b> Sucessos da Hora Warner! - 720p - Dublado </b></center></th></tr>
+<tr><td><div align="center"><img src="https://raw.githubusercontent.com/novidadespikachu/btns/master/Imgs/Infantil/Inf%20(5).png" alt="Addon Pikachu"></div></td></tr>
+<tr><td><justify>Hora Warner Pikachu, o melhor desenho completo! Com 600 episódios exclusivos apenas no addon Pikachu!</justify></td></tr></table>
+
+
 
 
 
